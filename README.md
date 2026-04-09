@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MAVG081009MGTRZNA4
+MAVG081009MGTRZNA4
